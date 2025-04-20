@@ -1,0 +1,1 @@
+The pater familias of the Goldbringer clan and the only one who has taken over the bank. Like the whole family, he is stingy and will try to buy over any adventurer's stuff of value for far too low a price. He wears expensive clothes and usually smokes cigars when he is awake.

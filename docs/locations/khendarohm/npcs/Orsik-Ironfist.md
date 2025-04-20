@@ -1,0 +1,1 @@
+Orsik is the town's mayor and civic leader. A stoic dwarf with a penchant for beer and other alcoholic drinks. Whatever happens, he will always try to do the best for his city and is very stubborn in this regard. He wears formal attire and always tries to look his best. He also has a long beard that has turned grey because of the stress of running the city.

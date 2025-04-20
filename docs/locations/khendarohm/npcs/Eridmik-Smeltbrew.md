@@ -1,0 +1,1 @@
+The Battlemaster is the commander of both the town's police and local militia. He is a well spoken slightly younger dwarf who, due to the many incidents in town, looks older than he actually is. His attire is the armour of a captain of Khendarohm's guard and he carries a battle axe everywhere he goes.

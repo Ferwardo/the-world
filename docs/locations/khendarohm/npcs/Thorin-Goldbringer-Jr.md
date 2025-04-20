@@ -1,0 +1,1 @@
+The only son of the Goldbringer family, he is a spoilt brat who looks down on everyone except his parents, whom he fears. He tries to dress himself as strikingly as possible but he looks more like a moron.
