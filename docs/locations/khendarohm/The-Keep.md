@@ -1,1 +1,0 @@
-The Keep is the city's citadel and its last defence. Its main officials, the [mayor Orsik Ironfist](./npcs/orsik-ironfist.md) and [battlemaster Eridmik Smeltbrew](./npcs/eridmik-smeltbrew.md) also have their residence and workplace there.

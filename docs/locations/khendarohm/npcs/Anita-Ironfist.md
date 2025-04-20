@@ -1,1 +1,0 @@
-Anita is Orsik's wife and also the receptionist at the town hall. She is always professional and wears normal day-to-day clothes.

@@ -1,1 +1,0 @@
-Thia is the only elf permanently residing in the city. She is a shy but helpful young woman who is nevertheless talented enough to help Duncan run his shop. She wears the same kind of robes as Duncan only hers have the branding of the shop front and back.

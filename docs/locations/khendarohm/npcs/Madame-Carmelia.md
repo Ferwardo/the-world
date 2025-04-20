@@ -1,1 +1,0 @@
-For those who don't know, Madame Carmelia is a female dragonborn with a long robe. However, for those who do know, ‘Madame Carmelia’ is 3 goblins in a robe who have lost their way to their new nest and now have to survive in the city. Somehow, they have learned how to heal people and are now selling medicinal potions to the town's inhabitants.

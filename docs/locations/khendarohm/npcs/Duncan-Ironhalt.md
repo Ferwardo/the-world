@@ -1,2 +1,0 @@
-Duncan is the only dwarf good enough at magic to enchant items giving him the monopoly with his shop where he sells both his services as an enchanter and off-the-shelf magic items. 
-He wears robes in the colour of his shop and is always in the mood to sell someone something.

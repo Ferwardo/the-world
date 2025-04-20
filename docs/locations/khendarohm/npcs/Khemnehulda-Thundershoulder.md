@@ -1,1 +1,0 @@
-An elderly dwarf with a love for cats and once you know her, she is a friendly almost granny-like lady. She wears day-to-day clothes that are nevertheless of a slightly better quality than first thought.

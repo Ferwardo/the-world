@@ -1,1 +1,0 @@
-[Thorin senior's](./Thorin-Goldbringer-Sr.md) wife and is responsible for the day-to-day business of the bank. She is a very difficult negotiator. Her clothes are expensive and she wears glasses.
