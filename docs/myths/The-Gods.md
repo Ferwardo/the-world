@@ -29,7 +29,7 @@ his master if the Elves are in danger of extermination or other great threat.
 __Domain:__ Craftsmanship
 
 ### The Morrígan
-Most of the time, the Morr´ıgan entered the mortal plane it was as either a
+Most of the time, the Morrígan entered the mortal plane it was as either a
 beautiful woman, three old women named Badb, Macha and Ana or by proxy
 in the form of three ravens, none of which bodes well for those who see or
 interact with them.
