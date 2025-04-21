@@ -9,3 +9,5 @@ Deep below the city lie mines that could be mined in relative peace while others
 
 Originating from a small mining village, this city has grown into one of the most important cities in the High Kingdom of the Elves as the primary trading city of the west.
 At the head of this operation are two people, the [mayor](./npcs/orsik-ironfist.md) who is in charge of all civil affairs such as trade and administration of the city, and the [battlemaster](./npcs/eridmik-smeltbrew.md) who, apart from defending the city, is also in charge of maintaining order.
+
+![khendarohm](../../img/khendarohm.png)
